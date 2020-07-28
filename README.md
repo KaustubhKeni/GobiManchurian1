@@ -1,1 +1,1 @@
-# GobiManchurian1-
+# GobiManchurian1-Gobi Manchurian is an Chinese Indian fried cauliflower dish. Gobi Manchurian is the result of the adaptation of Chinese cooking and seasoning techniques to suit Indian tastes and has become a staple of Indian Chinese cuisine. The word Manchurian means native or inhabitant of Manchuria.
